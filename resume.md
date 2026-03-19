@@ -11,8 +11,16 @@ Aspiring PhD applicant in Biology with a strong foundation in wet lab research a
 
 ## Education
 
+### Doctor of Philosophy, University of California, Santa Barbara, CA
+**2026 – Present**
+Sept 2026 – Present
+
+- Interdisciplinary Program in Quantitative Biosciences (IPQB)
+- Major in Biochemistry and Molecular Biology, with an emphasis in Biophysics and Bioengineering
+- Chancellor’s Fellow 2026–2027
+
 ### Master of Science, University of California, San Diego, CA
-**Class of 2025**  
+**Class of 2025**
 June 2024 – June 2025
 
 - Major in Biology
@@ -20,18 +28,11 @@ June 2024 – June 2025
 - Mentored by Dr. Joe Pogliano, Dr. Matthew Flagg, and Dr. Jim Wilhelm
 
 ### Bachelor of Science, University of California, San Diego, CA
-**Class of 2024**  
+**Class of 2024**
 June 2020 – June 2024
 
 - Major in Neurobiology
 - Cumulative GPA: 3.83
-
-### Bishop O’Dowd High School, Oakland, CA
-**Class of 2020**  
-July 2017 – June 2020
-
-- Took courses including Honors Chemistry, AP Calculus BC, AP Human Geography, AP Environmental Science, AP Chemistry, AP Physics 1, AP Biology, and AP Statistics
-- Graduated with a cumulative unweighted GPA of 3.97
 
 ## Experiences
 
